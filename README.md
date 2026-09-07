@@ -1,6 +1,14 @@
 <div align="center">
+
+<img width="1280" height="259" alt="tumblr_db36d9fc70afced29e123210464e8757_0f0c68e4_1280" src="https://github.com/user-attachments/assets/550a1bec-5ec6-410a-8576-579af6a89355" />
+
+<img width="400" height="14" alt="tumblr_a68ed346a1834431674e3836722959ca_6ae4ece1_400" src="https://github.com/user-attachments/assets/bceb6ae4-5d74-43ba-83e7-ad3144a796be" />
+
   
 # ╰☆☆ ℋℯ𝓁𝓁ℴ 𝓉𝒽ℯ𝓇ℯ! ☆☆╮
+
+<img width="400" height="32" alt="tumblr_6d4ada30c847395044decf53ce655f8c_10003ee8_400" src="https://github.com/user-attachments/assets/5bd9831f-0d07-489b-95b8-54a06e069368" /><img width="400" height="32" alt="tumblr_6d4ada30c847395044decf53ce655f8c_10003ee8_400" src="https://github.com/user-attachments/assets/5bd9831f-0d07-489b-95b8-54a06e069368" />
+
 
 
 ## About Me
@@ -50,6 +58,17 @@ But under 15 or 13, they're willing to be my friend with a harmful heart and not
 <p align="center">
 
 
+
+<img width="400" height="158" alt="tumblr_bc1474a24d30b6b6ab5de5c804aabbca_34af9007_400" src="https://github.com/user-attachments/assets/3f499009-cd0d-4e4e-a863-c2a23170459d" />
+
+<p align="center">
+
+<img width="400" height="14" alt="tumblr_a68ed346a1834431674e3836722959ca_6ae4ece1_400" src="https://github.com/user-attachments/assets/bceb6ae4-5d74-43ba-83e7-ad3144a796be" />
+
+<img width="400" height="32" alt="tumblr_6d4ada30c847395044decf53ce655f8c_10003ee8_400" src="https://github.com/user-attachments/assets/5bd9831f-0d07-489b-95b8-54a06e069368" /><img width="400" height="32" alt="tumblr_6d4ada30c847395044decf53ce655f8c_10003ee8_400" src="https://github.com/user-attachments/assets/5bd9831f-0d07-489b-95b8-54a06e069368" />
+
+
+<img width="1280" height="259" alt="tumblr_14d925719f6ef362f23c12dd493d9519_c1b6c258_1280" src="https://github.com/user-attachments/assets/cae14147-fd17-41ed-b71e-4b260ae55821" />
 
 
 
