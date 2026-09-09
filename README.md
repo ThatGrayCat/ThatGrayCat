@@ -11,7 +11,7 @@
 
 
 
-## About Me
+## About Me.
 
 Hello! I'm PennyPencat / Zai the Graycat. My pronouns are she/her.  
 <p align="center">
@@ -20,7 +20,7 @@ Nicknames: Penny, Zai, and Grei! (not good with nicknames.)
 I like the color orange, and it's my favorite type.
 
 
-## Hobbies that I really like
+## Hobbies that I really like.
 Loves to do arts and sketch.
 <p align="center">
 Loves playing.
@@ -31,7 +31,7 @@ Reads online comics
 <p align="center">
 Loves watching movies or series.
 
-## Pony Town  
+## About Pony Town.
 Enjoys crowd people.
 <p align="center">
 Free to whisper to interact or W2I!
@@ -46,7 +46,7 @@ May I request that I am very uncomfortable getting copied or covered (if friends
 <p align="center">
 Might be online talking to friends! (You can join and interact with me!)
   
-## Beware of the Warns
+## Beware of the Warning.
 
 Under 15 or 13 year old.
 <p align="center">
