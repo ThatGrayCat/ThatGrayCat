@@ -45,6 +45,7 @@ Takes time to answer your questions.
 May I request that I am very uncomfortable getting copied or covered (if friends' permissions.)
 <p align="center">
 Might be online talking to friends! (You can join and interact with me!)
+
   
 ## Beware of the Warning.
 
@@ -56,6 +57,19 @@ Skin color copying.
 <p align="center">
 But under 15 or 13, they're willing to be my friend with a harmful heart and not going to copy, and they are requested to be my friend!
 <p align="center">
+Might hiss at you or bite/nom you.
+<p align="center">
+
+## Favorite Shows / Characters
+Foxy, Chica, Freddy, and Bonnie (FNAF)
+<p align="center">
+MLP
+<p align="center">
+Wenda and Grey/Gray (Sprunki)
+<p align="center">
+Dogday, Catnap and Simon Smoke (SC)
+<p align="center">
+
 
 
 
