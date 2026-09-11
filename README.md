@@ -5,71 +5,80 @@
 <img width="400" height="14" alt="tumblr_a68ed346a1834431674e3836722959ca_6ae4ece1_400" src="https://github.com/user-attachments/assets/bceb6ae4-5d74-43ba-83e7-ad3144a796be" />
 
   
-# ╰☆☆ ℋℯ𝓁𝓁ℴ 𝓉𝒽ℯ𝓇ℯ! ☆☆╮
+# $\text{\small\it\color{#ff8c00}{╰☆☆ ℋℯ𝓁𝓁ℴ 𝓉𝒽ℯ𝓇ℯ! ☆☆╮}}$
 
 <img width="400" height="32" alt="tumblr_6d4ada30c847395044decf53ce655f8c_10003ee8_400" src="https://github.com/user-attachments/assets/5bd9831f-0d07-489b-95b8-54a06e069368" /><img width="400" height="32" alt="tumblr_6d4ada30c847395044decf53ce655f8c_10003ee8_400" src="https://github.com/user-attachments/assets/5bd9831f-0d07-489b-95b8-54a06e069368" />
 
+## $\text{\small\it\color{#ff8c00}{ᴛʜᴇ ᴛᴀʙʟᴇ ᴜɴᴅᴇʀ ᴛʜᴇ ᴡᴏʀᴅs ɪs ᴄʟɪᴄᴋᴀʙʟᴇ.}}$
 
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#ff8c00}{About Me.}}$</summary>
+<br>$\text{\color{#ff8c00}{Hello! I'm PennyPencat / Zai the Graycat. My pronouns are she/her.}}$  
 
-## About Me.
+<br>$\text{\color{#ff8c00}{Nicknames: Penny, Zai, and Grei! (not good with nicknames.)}}$
 
-Hello! I'm PennyPencat / Zai the Graycat. My pronouns are she/her.  
-<p align="center">
-Nicknames: Penny, Zai, and Grei! (not good with nicknames.)
-<p align="center">
-I like the color orange, and it's my favorite type.
+<br>$\text{\color{#ff8c00}{I like the color orange, and it's my favorite type.}}$
+</details>
+</th></table>
 
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#ff8c00}{Hobbies that I really like.}}$</summary>
+<br>$\text{\color{#ff8c00}{Loves to do arts and sketch.}}$
 
-## Hobbies that I really like.
-Loves to do arts and sketch.
-<p align="center">
-Loves playing.
-<p align="center">
-Loves to listen musics.
-<p align="center">
-Reads online comics
-<p align="center">
-Loves watching movies or series.
+<br>$\text{\color{#ff8c00}{Loves playing.}}$
 
-## About Pony Town.
-Enjoys crowd people.
-<p align="center">
-Free to whisper to interact or W2I!
-<p align="center">
-Seeing my pony skin alone is uncomfortable, so come up with me and cuddle or sit with me!
-<p align="center">
-No spam whispers, or you might not answer your questions if you're doing spam whispers.
-<p align="center">
-Takes time to answer your questions.
-<p align="center">
-May I request that I am very uncomfortable getting copied or covered (if friends' permissions.)
-<p align="center">
-Might be online talking to friends! (You can join and interact with me!)
+<br>$\text{\color{#ff8c00}{Loves to listen musics.}}$
 
+<br>$\text{\color{#ff8c00}{Reads online comics.}}$
+
+<br>$\text{\color{#ff8c00}{Loves watching movies or series.}}$
+</details>
+</th></table>
+
+<table align="center"><th>
+<details><summary> <br><br>$\text{\small\it\color{#ff8c00}{About Pony Town.}}$</summary>
+<br>$\text{\color{#ff8c00}{Enjoys crowd people.}}$
+
+<br>$\text{\color{#ff8c00}{Free to whisper to interact or W2I!}}$
+
+<br>$\text{\color{#ff8c00}{Seeing my pony skin alone is uncomfortable, so come up with me and cuddle or sit with me! (No need to ask permissions by whispering to me)}}$
+
+<br>$\text{\color{#ff8c00}{No spam whispers, or you might not answer your questions if you're doing spam whispers.}}$
+
+<br>$\text{\color{#ff8c00}{It takes time to answer your questions.}}$
+
+<br>$\text{\color{#ff8c00}{May I request that I am very uncomfortable getting copied or covered (if friends' permissions.)}}$
+
+<br>$\text{\color{#ff8c00}{Might be online talking to friends! (You can join and interact with me!)}}$
+</details>
+</th></table>
   
-## Beware of the Warning.
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#ff8c00}{Beware of the Warning.}}$</summary>
+<br>$\text{\color{#ff8c00}{Under 15 or 13 year old.}}$
 
-Under 15 or 13 year old.
-<p align="center">
-Darkshippers and Proshippers are ignored or avoided.
-<p align="center">
-Skin color copying.
-<p align="center">
-But under 15 or 13, they're willing to be my friend with a harmful heart and not going to copy, and they are requested to be my friend!
-<p align="center">
-Might hiss at you or bite/nom you.
-<p align="center">
+<br>$\text{\color{#ff8c00}{Darkshippers and Proshippers are ignored or avoided.}}$
 
-## Favorite Shows / Characters
-Foxy, Chica, Freddy, and Bonnie (FNAF)
-<p align="center">
-MLP
-<p align="center">
-Wenda and Grey/Gray (Sprunki)
-<p align="center">
-Dogday, Catnap and Simon Smoke (SC)
-<p align="center">
+<br>$\text{\color{#ff8c00}{Skin color copying.}}$
 
+<br>$\text{\color{#ff8c00}{But under 15 or 13, they're willing to be my friend with a harmful heart and not going to copy, and they are requested to be my friend!}}$
+
+<br>$\text{\color{#ff8c00}{Might hiss at you or bite/nom you.}}$
+</details>
+</th></table>
+
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#ff8c00}{Favorite Shows / Characters}}$</summary>
+<br>$\text{\color{#ff8c00}{Foxy, Chica, Freddy, and Bonnie (FNAF)}}$
+
+<br>$\text{\color{#ff8c00}{MLP}}$
+
+<br>$\text{\color{#ff8c00}{Wenda and Grey/Gray (Sprunki)}}$
+
+<br>$\text{\color{#ff8c00}{Dogday, Catnap and Simon Smoke (SC)}}$
+
+</details>
+</th></table>
 
 
 
