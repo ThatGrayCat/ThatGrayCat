@@ -89,7 +89,7 @@
 
 <br>$\text{\color{#ff8c00}{Bowser and Jr. Bowser (From Mario Bros)}}$
 
-<br>$\text{\color{#ff8c00}{Scraps, Vee, Pebble, Eclipse, Dyle, Shrimpo, Goob, Cosmo, Sprout, Flutter, Shelly, Gourdy, Looey, Yatta, Cocoa, Eggson, Bassie, Rudie, Coal, Astro, and Dandy (Dandy's World/DW)}}$
+<br>$\text{\color{#ff8c00}{Scraps, Vee, Pebble, Eclipse, Dyle, Shrimpo, Goob, Cosmo, Sprout, Flutter, Shelly, Gourdy, Looey, Yatta, Cocoa, Eggson, Bassie, Rudie, Coal, Astro, Bobbette, and Dandy (Dandy's World/DW)}}$
 
 
 </details>
