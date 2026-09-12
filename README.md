@@ -64,6 +64,8 @@
 <br>$\text{\color{#ff8c00}{But under 15 or 13, they're willing to be my friend with a harmful heart and not going to copy, and they are requested to be my friend!}}$
 
 <br>$\text{\color{#ff8c00}{Might hiss at you or bite/nom you.}}$
+
+<br>$\text{\color{#ff8c00}{I'm online if I use my regular or original skin! However, if I'm using my costume skins, which include sleeping, scencore, maple skin, and more! indicating that I'm AFK or off tab!}}$
 </details>
 </th></table>
 
@@ -71,11 +73,15 @@
 <details><summary> <br>$\text{\small\it\color{#ff8c00}{Favorite Shows / Characters}}$</summary>
 <br>$\text{\color{#ff8c00}{Foxy, Chica, Freddy, and Bonnie (FNAF)}}$
 
-<br>$\text{\color{#ff8c00}{MLP}}$
+<br>$\text{\color{#ff8c00}{MLP (My Little Pony)}}$
 
 <br>$\text{\color{#ff8c00}{Wenda and Grey/Gray (Sprunki)}}$
 
-<br>$\text{\color{#ff8c00}{Dogday, Catnap and Simon Smoke (SC)}}$
+<br>$\text{\color{#ff8c00}{Dogday, Catnap, Kickin Chicken, Rabie Baby, Poe, Maggie Mako, and Simon Smoke (SC/Smiling Critters and NC/Nightmare Critters)}}$
+
+<br>$\text{\color{#ff8c00}{Bowser and Jr. Bowser (From Mario Bros)}}$
+
+<br>$\text{\color{#ff8c00}{Scraps, Vee, Pebble, Eclipse, Dyle, Shrimpo, Goob, Cosmo, Sprout, Flutter, Shelly, Gourdy, Looey, Yatta, Cocoa, Eggson, Bassie, Rudie, Coal, Astro, and Dandy (Dandy's World/DW)}}$
 
 </details>
 </th></table>
