@@ -90,6 +90,8 @@
 <br>$\text{\color{#ff8c00}{Bowser and Jr. Bowser (From Mario Bros)}}$
 
 <br>$\text{\color{#ff8c00}{Scraps, Vee, Pebble, Eclipse, Dyle, Shrimpo, Goob, Cosmo, Sprout, Flutter, Shelly, Gourdy, Looey, Yatta, Cocoa, Eggson, Bassie, Rudie, Coal, Astro, Bobbette, and Dandy (Dandy's World/DW)}}$
+
+<br>$\text{\color{#ff8c00}{Charizard/Charmeleon/Charmander, Blaziken, and Lucario}}$
 </details>
 </th></table>
 
@@ -132,19 +134,12 @@
 <img width="101" height="57" alt="tumblr_2b467041226c0917e32984ac56af74f7_f832160f_250" src="https://github.com/user-attachments/assets/1f77ecef-53e1-410e-ada1-78d8e97f2687" />
 <img width="99" height="56" alt="tumblr_d425a4e388335e022c96a7f3d2c6c1e9_8394055c_100" src="https://github.com/user-attachments/assets/5e238755-0987-4118-87ba-1c7d5774aff3" />
 <img width="99" height="56" alt="tumblr_45a2f938cf628aa02c89fcc4b0553e4b_fd84e085_100" src="https://github.com/user-attachments/assets/f562b0fb-6c7e-4b88-b3d5-73ed93d1cac0" />
+<img width="99" height="56" alt="tumblr_e86ec3eb0a0997b3e77655cf813eafc3_2a6e030d_100" src="https://github.com/user-attachments/assets/a8ae71b9-ce30-4ea0-8320-79eef129b66d" />
+<img width="150" height="20" alt="tumblr_6ebc420ef0ec855ecc1c9266f36723c9_9eb2fd2a_250" src="https://github.com/user-attachments/assets/accffc42-2c1c-4997-ab54-07a8a8e4d5f3" />
+<img width="99" height="56" alt="tumblr_0d5592f44c3faafa992896cba10074bb_12d7558d_100" src="https://github.com/user-attachments/assets/16b46b86-0455-4487-be20-317337ebfe2d" />
+<img width="150" height="20" alt="tumblr_7d2c1b4e0d06691b077941e7df46cc42_d0c7713a_250" src="https://github.com/user-attachments/assets/2a461ff2-d841-41d4-bbb0-787db1236445" />
 </details>
 </th></table>
-
-
-
-
-
-
-
-
-
-
-
 
 <img width="400" height="158" alt="tumblr_bc1474a24d30b6b6ab5de5c804aabbca_34af9007_400" src="https://github.com/user-attachments/assets/3f499009-cd0d-4e4e-a863-c2a23170459d" />
 
