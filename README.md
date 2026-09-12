@@ -18,6 +18,12 @@
 <br>$\text{\color{#ff8c00}{Nicknames: Penny, Zai, and Grei! (not good with nicknames.)}}$
 
 <br>$\text{\color{#ff8c00}{I like the color orange, and it's my favorite type.}}$
+
+<br>$\text{\color{#ff8c00}{Doesn't have a mate yet. Well technically I'm looking for one, sadly.}}$
+
+<br>$\text{\color{#ff8c00}{I am a multifandom fan. (and others, I don't know what they are.)}}$
+
+<br>$\text{\color{#ff8c00}{Selfshipper of Bowser.}}$
 </details>
 </th></table>
 
@@ -71,7 +77,9 @@
 
 <table align="center"><th>
 <details><summary> <br>$\text{\small\it\color{#ff8c00}{Favorite Shows / Characters}}$</summary>
-<br>$\text{\color{#ff8c00}{Foxy, Chica, Freddy, and Bonnie (FNAF)}}$
+<br>$\text{\color{#ff8c00}{Foxy, Chica, Freddy, and Bonnie (FNAF/Five Nights at Freddy)}}$
+
+<br>$\text{\color{#ff8c00}{Roxxane Wolf, Glamrock Freddy, Glamrock Monty, Glamrock Bonnie, and Glamrock Chica (FNAF: SB/Security Breach)}}$
 
 <br>$\text{\color{#ff8c00}{MLP (My Little Pony)}}$
 
@@ -82,6 +90,7 @@
 <br>$\text{\color{#ff8c00}{Bowser and Jr. Bowser (From Mario Bros)}}$
 
 <br>$\text{\color{#ff8c00}{Scraps, Vee, Pebble, Eclipse, Dyle, Shrimpo, Goob, Cosmo, Sprout, Flutter, Shelly, Gourdy, Looey, Yatta, Cocoa, Eggson, Bassie, Rudie, Coal, Astro, and Dandy (Dandy's World/DW)}}$
+
 
 </details>
 </th></table>
