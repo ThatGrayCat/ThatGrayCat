@@ -81,7 +81,7 @@
 
 <br>$\text{\color{#ff8c00}{Roxxane Wolf, Glamrock Freddy, Glamrock Monty, Glamrock Bonnie, and Glamrock Chica (FNAF: SB/Security Breach)}}$
 
-<br>$\text{\color{#ff8c00}{MLP (My Little Pony)}}$
+<br>$\text{\color{#ff8c00}{Fluttershy and Spike (MLP/My Little Pony)}}$
 
 <br>$\text{\color{#ff8c00}{Wenda and Grey/Gray (Sprunki)}}$
 
